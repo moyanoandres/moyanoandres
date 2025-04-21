@@ -1,3 +1,3 @@
 # Software Engineer
 
-## Passionate about technology and always looking to learn new stuff
+## Passionate about technology and always eager to learn new things.
